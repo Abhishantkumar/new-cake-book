@@ -1,0 +1,1 @@
+It's best to heat your milk slowly over medium heat, and stir it while it comes to a boil. Stirring and heating gently help hold the water, carbs, fat, and protein in milk together. As soon as you see bubbles forming around the edges of the pot and just a few in the middle, turn off the heat
